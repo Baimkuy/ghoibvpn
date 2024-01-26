@@ -1,2 +1,2 @@
 # ghoibvpn
-KAMU ITEM
+*SCRPT UJI COBA*
